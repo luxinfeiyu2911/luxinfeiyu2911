@@ -19,6 +19,11 @@ Here are some ideas to get you started:
 <h3 align="center">7分技术，3分管理，2分运气</h3>
 
 <h3 align="left">Connect with me:</h3>
+
+- **Email**：luxinfeiyu1129@163.com
+- **微信公众号**：叩钉壹刻
+
+
 <p align="left">
 </p>
 
